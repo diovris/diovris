@@ -30,7 +30,6 @@
 
 <br />
 <br />
----
 
 [website]: https://faqibachtiar.me
 [instagram]: https://instagram.com/privatevoidd
