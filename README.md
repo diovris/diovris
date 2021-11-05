@@ -1,6 +1,6 @@
 ### Hi there, I'm Faqi Bachtiar - aka [privatevoidd][website] 👋
 
-## I'm a Student of Telkom Jakarta highscool
+## I'm a Student of Telkom Jakarta Highscool
 
 - 👀 I'm interested in Software Engineering, and Cyber Security.
 - 🌱 I’m currently learning everything 🤣
