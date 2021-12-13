@@ -4,7 +4,7 @@
 
 - 👀 I'm interested in Software Engineering, and Cyber Security.
 - 🌱 I’m currently learning everything 🤣
-- ⚡ Fun fact: I love to play FPS and Casual games.
+- ⚡ Fun fact: I love to play FPS, Casual games and MMORPG.
 
 ### Connect with me:
 
