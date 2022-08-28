@@ -1,4 +1,4 @@
-### Hi there, I'm Faqi Bachtiar - aka [privatevoidd][website] 👋
+### Hi there, I'm Faqi Bachtiar - aka [diovris][website] 👋
 
 ## I'm a Student of Telkom Jakarta Highscool
 
